@@ -1,0 +1,1 @@
+# Gyeongnam-Techno-Park-ai-lecture
